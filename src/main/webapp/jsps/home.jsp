@@ -16,6 +16,7 @@
 	Over 80% of our students are hired within 6 months of joining Landmark Technology.
 	Congratulations!! Welcome to Landmark Technology!! Welcome to your ENVIABLE IT CAREER.
 	We offer qualitative interview preparations and job assitance.
+	You will not regret joining our team.
 	The King is in our midst. His name is JESUS. What a wonderful it is. HE IS OUR SUCCESS ACCESS KEY.
 	Thanks for being an ambassador of Landmark Technology. President</h1>
 <hr>
